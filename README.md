@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @UFOMOJI
+- 👀 I’m creating NFTS and New Innovative Crypto Projects
+- 🌱 I’m currently working on the FOundations of my new crypto project
+- 💞️ I’m looking to collaborate on New Crypto Meme Project With a TRUE Metaverse. Nothing gimmicky or lame. Only big time something that is a Billion $ biusiness. 
+- 📫 How to reach me ... etouterspacet@gmail.com for now.
+-  new updates soon...
